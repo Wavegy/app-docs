@@ -40,7 +40,7 @@ This Privacy Policy may be updated without notice. We will notify you of any cha
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-[Your contact email]
+https://wavestrategy.jp/%e3%81%8a%e5%95%8f%e3%81%84%e5%90%88%e3%82%8f%e3%81%9b/
 
 ## 7. Last Updated
 
